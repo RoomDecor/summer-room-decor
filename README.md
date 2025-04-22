@@ -1,1 +1,1 @@
-# summer-room-decor
+# summer-room-decor-ideas
